@@ -1,5 +1,4 @@
 
-
 [![enter image description here](https://i.sstatic.net/bp5fGEUr.jpg)
 
 https://grok.com/share/c2hhcmQtMg%3D%3D_c8be7403-c88f-44bd-9efe-f3049cff45a9
@@ -111,7 +110,7 @@ Ready to elevate your Tehran International Exhibition experience? Hereâ€™s 
 Exhibition Connector is your partner in unlocking the full potential of the Tehran International Exhibition. Sign up today and transform your trade show experience with AI!
 
 # And the AI made report for it :
-
+![enter image description here](https://i.sstatic.net/YmZ5fSx7.jpg)
 https://drive.google.com/drive/folders/1iYTjg0CiaVy8rp_n_V_9i6Tn9gYCIrs-
 
 ## For example the pitch deck file for it 👇:
@@ -131,11 +130,9 @@ https://docs.google.com/document/d/1iJWqxLkInbmS8437gRQpHLndL3s14oHx/edit?usp=dr
 ![enter image description here](https://i.sstatic.net/mLGu4XyD.jpg)
 https://docs.google.com/document/d/1aLLL7pa_JB446Xz71SzWGUIIdts-xXu1/edit?usp=drivesdk&ouid=109257567653816211530&rtpof=true&sd=true
  
+  ### And PowerPoint for it 👇:
+![enter image description here](https://i.sstatic.net/xVUNH6Ui.jpg)
 
+https://www.slidespilot.com/s/p/vVMQY3RNMj
 
   
-  
-  
-
-
-https://rentry.co/wbkiru45
