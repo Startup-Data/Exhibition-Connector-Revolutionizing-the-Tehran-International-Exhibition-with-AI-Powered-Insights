@@ -1,6 +1,9 @@
 
 [![enter image description here](https://i.sstatic.net/bp5fGEUr.jpg)
 
+The related video :
+https://youtube.com/shorts/7VAk4iLXlrE?si=MqkMQAWCv4dK83mH
+
 https://grok.com/share/c2hhcmQtMg%3D%3D_c8be7403-c88f-44bd-9efe-f3049cff45a9
 
 # Exhibition Connector: Revolutionizing the Tehran International Exhibition with AI-Powered Insights
